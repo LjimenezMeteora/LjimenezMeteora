@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @LjimenezMeteora
-- 👀 I’m interested in recluiment IT professinals
+- 👋 Hi, I’m @LjimenezMeteora - Luis Jiménez from Meteora www.meteoracr.com
+- 👀 I’m interested in recluiment IT professionals
 - 🌱 I’m currently learning about IT universe
 - 💞️ I’m looking to collaborate on offer new job's opportunities for great professinals 
 - 📫 How to reach me ljimenez@meteoracr.com
